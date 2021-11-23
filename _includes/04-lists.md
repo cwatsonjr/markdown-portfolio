@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+Places to go :+1: 
+# 
+1. Las Vegas
+2. New York
